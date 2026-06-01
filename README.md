@@ -1,7 +1,7 @@
 
 <p align="center"> " 𝐼 𝑑𝑜𝑛'𝑡 𝑡ℎ𝑖𝑛𝑘 𝑡ℎ𝑒𝑟𝑒'𝑠 𝑎𝑛𝑦 𝑝𝑜𝑖𝑛𝑡 𝑑𝑤𝑒𝑙𝑙𝑖𝑛𝑔 𝑜𝑛 𝑎𝑛𝑦𝑡ℎ𝑖𝑛𝑔 𝑙𝑜𝑛𝑔𝑒𝑟 𝑡ℎ𝑎𝑛 𝑦𝑜𝑢 ℎ𝑎𝑣𝑒 𝑡𝑜 ." 
   
-<p align="center"><img width="626" height="294" alt="oscar piastri banner" src="https://github.com/user-attachments/assets/662c56b6-e5e6-4fae-8592-20666b55822a" />
+<p align="center"><img width="716" height="384" alt="oscar piastri banner" src="https://github.com/user-attachments/assets/662c56b6-e5e6-4fae-8592-20666b55822a" />
 
 
 <p align="center"> 𝐶𝑖𝑎𝑜 , 𝐼'𝑚 𝐶𝑦𝑛𝑖𝑐 ᵒʳ 𝑃𝑖𝑎𝑠
