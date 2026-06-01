@@ -1,3 +1,5 @@
+<img width="736" height="696" alt="oscar piastri • 2023" src="https://github.com/user-attachments/assets/eb9e9195-6f52-4eea-b8cf-a847ca1bc453" />
+<img width="736" height="495" alt="Oscar Piastri (4)" src="https://github.com/user-attachments/assets/508ed1bf-9b55-4c2e-bae0-7baf05beb82d" />
 
 <p align="center"><img width="556" height="715" alt="Lando Norris and Oscar piastri" src="https://github.com/user-attachments/assets/d3272640-91b8-488d-95d8-38fd91fdc972" />
 
@@ -15,8 +17,14 @@
 
 <p align="center"> /-/
 
-
-
+<p align="center"><img width="736" height="696" alt="oscar piastri • 2023" src="https://github.com/user-attachments/assets/6a6d4696-fd31-4d2f-8e30-15e3f90a275b" />
   
 <p align="center"> 𝑆𝑡𝑎𝑡𝑢𝑠 : 
+
+
+
+
+
+
+
 
