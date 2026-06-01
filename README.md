@@ -1,4 +1,3 @@
-<p align="center"><img width="2048" height="200" alt="tumblr_e3275cdee5950c86cd5c9e9a5f6ebe37_4f3f7efb_2048" src="https://github.com/user-attachments/assets/26c8691d-c449-4139-bf6b-8af722f98b0a" />
 
 <p align="center"><img width="556" height="715" alt="Lando Norris and Oscar piastri" src="https://github.com/user-attachments/assets/d3272640-91b8-488d-95d8-38fd91fdc972" />
 
