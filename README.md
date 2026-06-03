@@ -14,6 +14,9 @@
 
 <p align="center"> 𝐹𝑖𝑥𝑎𝑡𝑖𝑛𝑔 𝑜𝑛 𝑂𝑠𝑐𝑎𝑟 𝑃𝑖𝑎𝑠𝑡𝑟𝑖 𝑐𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦
 
+
+<p align="center">𝑀𝑜𝑡𝑜𝐺𝑃 & 𝐹𝑜𝑟𝑚𝑢𝑙𝑎 𝑜𝑛𝑒 𝑓𝑎𝑛. 𝐹𝑒𝑙𝑙𝑜𝑤 𝑓𝑎𝑛𝑠 𝑖𝑛𝑡 𝑝𝑠𝑙𝑠𝑙𝑝𝑠 :]
+
 <p align="center"> /-/
 
 <p align="center"><img width="436" height="396" alt="oscar piastri • 2023" src="https://github.com/user-attachments/assets/6a6d4696-fd31-4d2f-8e30-15e3f90a275b" />
