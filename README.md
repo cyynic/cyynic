@@ -1,6 +1,6 @@
 
 
-<p align="center"><img width="636" height="372" alt="Damon Hill and Michael Schumacher, 1996" src="https://github.com/user-attachments/assets/adfe5fb1-84f8-4573-b245-fef56b01189b" />
+<p align="center"><img width="626" height="362" alt="Damon Hill and Michael Schumacher, 1996" src="https://github.com/user-attachments/assets/adfe5fb1-84f8-4573-b245-fef56b01189b" />
 
 
 
