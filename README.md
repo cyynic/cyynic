@@ -1,5 +1,4 @@
 
-<p align="center"><img width="680" height="216" alt="Free To Play Fashion Frame GIF" src="https://github.com/user-attachments/assets/27427170-4461-4378-b8cd-f0e7bdbf6732" />
 
  ---
 
